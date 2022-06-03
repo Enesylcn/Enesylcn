@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **enesylcn57@outlook.com**
 
-- ⚡ Fun fact **I think ı ama patient rock but not for a bug :D**
+- ⚡ Fun fact **I think ı but patient rock but not for a bug :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
